@@ -1,4 +1,6 @@
 # petulant-shame
 just another repository
-Difficult doing this on phone but I will start working on it.
-I will pick stop for now, I'm out of ideas
+
+So Difficult doing this by phone, 
+I will  stop for now, I'm out of ideas.
+ 
